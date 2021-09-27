@@ -1,1 +1,1 @@
-[](images/VirtualFriends.JPG)
+Portfolio of existing projects! 
